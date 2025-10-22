@@ -5,8 +5,7 @@ The age of AI slop in the name of entertainment (referring to the AI-powered Mah
 There goes an epic about the full spectrum of human nature presented in all its heinous imperfection & tainted glory by the author through the characters of the epic reduced to JUST.A.VISUAL. that would momentarily sedate the eyes by its resolution but is actually hollow.
 
 -----------------
-Creative Autonomy?
---
+
 The keyword is DECISION OF CREATIVE AUTONOMY. Why would a creator not want to decide which visual to use & in what context? Why would they forgo their agency in the storytelling process?
 
 The main question is WHY?
@@ -26,8 +25,7 @@ Maybe AI can convey those emotions better than humans at some point of time in t
 Should we even be investing in AI-generated creation when AI can be used for much more urgent use cases? More on this in the next section.
 
 -------------------
-Core issue of resource misallocation:
------
+
 This isn't even the core issue. The core issue is of respect, resource allocation, & depletion. Our epics deserve to be respected with wholehearted efforts, not some repetition of trying to modify a prompt in AI over & over again.
 
 How does the exorbitant consumption of water & electricity for generating this AI generated video series justify the mindless repetition retraining & retrying the non-existent visual flair, where areas like Pune & Bangalore & many others are facing water crisis over the years?
@@ -39,6 +37,7 @@ We must resist this complacency & demand higher standards from us & our surround
 Now we come to the point of how this reflects on those who sacrificed for us. Our ancestors didn't do back-breaking construction work for us to go back to the ways of 'human kill human to stay alive'. They didn't die for us to stay silent while witnessing the misallocation of time, funds, water, electricity & other resources in real time while the environment is getting destroyed by climate change. They didn't work jobs that they hated for us to die working jobs that we hate to buy things that we don't need to impress people that we don't care about. WE MUST WAKE UP. This is our world, for no other reason than the fact that we were born in it, & we have the individual responsibility to demand accountability from ourselves & from those working to take care of us in return for our blood, sweat & tears & the time we put in work. The individual responsibility can't be carried by another, same as the fact that every student has to write his own exam at school. We have the responsibility to stay accountable to put in our part of the work & ask questions responsibly.
 
 -----------------
-As I finish this post, I leave you with a question:
----
+
+As I finish writing this post, I leave you with a question:
+
 Why shouldn't we demand higher standards from ourselves? Why shouldn't we demand higher standards from the environment around us (not just physical, but digital too), even entertainment? And Mahabharata isn't just entertainment, it's our history that contains a vast ocean of knowledge for humanity, one that must not be traded for convenience.
