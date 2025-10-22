@@ -1,6 +1,6 @@
 ## Beware ye of genAI complacency, lest you forget the core issue !
 
-The age of AI slop in the name of entertainment (referring to the AI-powered Mahabharata TV show) is upon us. This new iteration doesn't even try to innovate, it's only a random collection of 'let's take inspiration from some epic movies like Baahubali & Ponniyin Selvan duologies & some other highly rated historical movies & give those visuals the context of Mahabharata instead of understanding the story & then deciding the visual context', & BOOM!
+The age of AI slop in the name of entertainment (referring to the AI-powered Mahabharata TV show) has dawned upon us. This new iteration doesn't even try to innovate, it's only a random collection of 'let's take inspiration from some epic movies like Baahubali & Ponniyin Selvan duologies & some other highly rated historical movies & give those visuals the context of Mahabharata instead of understanding the story & then deciding the visual context', & BOOM!
 
 There goes an epic about the full spectrum of human nature presented in all its heinous imperfection & tainted glory by the author through the characters of the epic reduced to JUST.A.VISUAL. that would momentarily sedate the eyes by its resolution but is actually hollow.
 
