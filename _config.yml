@@ -1,16 +1,17 @@
 title: "Indra writes..."
 author: "Indratanu Saha"
-description: "Here I'll post long content that gets cut short in Medium." # This will show up in places like twitter, linkedin, etc, if you share your sites url as a post.
+description: "Here I'll post long content that gets cut short in Medium due to word limit." # This will show up in places like twitter, linkedin, etc, if you share your sites url as a post.
 
 # Email / Social media user names used by the minima theme:
 # All of these are optional and can be removed or commented out
-email: "saha.indratanu@mail.com"
-twitter_username: ""
+email: "saha.indratanu@gmail.com"
+# twitter_username: ""
 github_username: "indratanusaha"
-linkedin_username: "Indratanu Saha"
-#facebook_username: username
+linkedin_username: "https://www.linkedin.com/in/indratanusaha/"
+medium_username: "Indratanu Saha"
+facebook_username: "Indratanu Saha"
 #flickr_username: username
-#instagram_username: username
+instagram_username: "indratanu7saha"
 #pinterest_username: username
 #youtube_username: username
 #googleplus_username: +username
