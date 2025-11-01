@@ -99,6 +99,8 @@ The essential first step is to sit with the emotional discomfort without looking
 
 Despair & numbing ourselves to it won't lead us anywhere. What if the numbness induced by extreme despair is another perverse manifestation of last-stage capitalism, where even despair becomes a product? Is this already not happening? What do therapists & psychologists (mainstream) exist for, if not to normalize people to numbness & desensitization?
 
-Refer to this quote from Erich Fromm (The Sane Society), "Many psychiatrists and psychologists refuse to entertain the idea that society as a whole may be lacking in sanity. They hold that the problem of mental health in a society is only that of the number of 'unadjusted' individuals, and not of a possible unadjustment of the culture itself." & go down the rabbit hole of research for reaching truth. Then sit with the emotional discomfort. Feel it fully. Don't look for an escape.
+Erich Fromm wrote in The Sane Society (2013), "Many psychiatrists and psychologists refuse to entertain the idea that society as a whole may be lacking in sanity. They hold that the problem of mental health in a society is only that of the number of 'unadjusted' individuals, and not of a possible unadjustment of the culture itself."
 
-The internal flame that burns within you now may be the only light left for you & the world.
+That is where we are. A civilization that numbed itself into submission calls the few who still feel insane. Sit with that discomfort. Let it burn through the layers of numbness. Do not escape it.
+
+The flame you feel within now may be the only light left, not just for you, but for the world & everyone in it.
