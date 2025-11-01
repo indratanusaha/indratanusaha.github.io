@@ -19,7 +19,8 @@ The realisation that someone else who was poorer than us suffered for even exist
 शुनि चैव श्वपाके च पण्डिता: समदर्शिन:॥ (Bhagavad Gita 5.18)
 
 Translation: the wise see the same in a learned man, a cow, an elephant, a dog, and even a dog-eater.
-Explanation: the wise (here it implies aware) don't distinguish themselves from the world, because they understand that distinguishing themselves from the world is an act of ego-preservation, to subscribe to the belief that an individual's needs or wants are separate & above the collective consciousness, which is not true, unless that individual is the only one on the path of dharma. But then, that person would try to turn everyone towards dharma instead of trying to get something out of people. That is a marker for genuine intent.
+
+Meaning: the wise (here it implies aware) don't distinguish themselves from the world, because they understand that distinguishing themselves from the world is an act of ego-preservation, to subscribe to the belief that an individual's needs or wants are separate & above the collective consciousness, which is not true, unless that individual is the only one on the path of dharma. But then, that person would try to turn everyone towards dharma instead of trying to get something out of people. That is a marker for genuine intent.
 
 
 ## Our current tragedy & numbness:
