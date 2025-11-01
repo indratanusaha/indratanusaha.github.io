@@ -31,8 +31,7 @@ Instead of letting it be liberation, we let ourselves be chained by the fact of 
 
 
 ## How & why do we numb ourselves to the suffering of the people in the world?
-We assume they deserve it. Work hard, get a job, slog for 40 years, all a lie that was sold to us, & we're waking up, that's why the dissonance arises. But here's how we numb ourselves further: Instead of questioning the system which propagates the suffering of most for a handful to thrive, we question the individual who suffers & until we find a confirmation bias within his answer which somehow always comes to 'you don't work hard enough', 'tough luck but this is how the world works, take it or leave it', we don't assume credibility of his answer. Why don't we question the system? Because deep down, we've become so terrified of the chaos of freedom that we'd rather try to rise in a system that promises crumbs while breaking us apart, rather than creating a new system in which people won't have to apologize for existing.
-
+We assume they deserve it. Work hard, get a job, slog for 40 years, all a lie that was sold to us, & we're waking up, that's why the dissonance arises. But here's how we numb ourselves further: Instead of questioning the system which propagates the suffering of most for a handful to thrive, we question the individual who suffers & until we find a confirmation bias within his answer which somehow always comes to 'you don't work hard enough', 'tough luck but this is how the world works, take it or leave it', we don't assume credibility of his answer. Why don't we question the system? Because deep down, we've become so terrified of the chaos of freedom that we'd rather try to rise in a system that promises crumbs while breaking us apart, rather than creating a new system in which people won't have to apologize for existing. We have mistaken sedation for peace.
 
 सर्वारम्भा हि दोषेण धूमेनाग्निरिवावृता:॥ (Bhagavad Gita 18.48)
 
@@ -97,3 +96,7 @@ Meaning: the only way to put a stop to this self-degredation is to have faith in
 The essential first step is to sit with the emotional discomfort without looking for an escape even if it pains.
 
 “If we have our own why in life, we shall get along with almost any how. Man does not strive for pleasure, only the Englishman does." (Friedrich Nietzsche, Twilight of the Idols)
+
+Despair & numbing ourselves to it won't lead us anywhere. I conclude this part with a question: what if the numbness induced by extreme despair is another perverse manifestation of last-stage capitalism, where even despair becomes a product? Is this already not happening? What do therapists & psychologists (mainstream) exist for, if not to normalize oeople to numbness & desensitization?
+
+Refer to this quote from Erich Fromm (The Sane Society), "Many psychiatrists and psychologists refuse to entertain the idea that society as a whole may be lacking in sanity. They hold that the problem of mental health in a society is only that of the number of 'unadjusted' individuals, and not of a possible unadjustment of the culture itself." & go down the rabbit hole of research for reaching truth.
