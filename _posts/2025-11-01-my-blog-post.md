@@ -23,7 +23,7 @@ Translation: the wise see the same in a learned man, a cow, an elephant, a dog, 
 Meaning: the wise (here it implies aware) don't distinguish themselves from the world, because they understand that distinguishing themselves from the world is an act of ego-preservation, to subscribe to the belief that an individual's needs or wants are separate & above the collective consciousness, which is not true, unless that individual is the only one on the path of dharma. But then, that person would try to turn everyone towards dharma instead of trying to get something out of people. That is a marker for genuine intent.
 
 
-## Our current tragedy & numbness & the internal will to rise outside of a meaningless & self-destructive system
+## Our current tragedy & the will to rise outside of a meaningless & self-destructive system
 Our tragedy is that we feel too much, so we numb ourselves by consumerism, & then we're left with nothing to preserve or protect. That is the great depression of our lives. A lack of worthy purpose. We realized that none of the jobs or things we do won't matter in a thousand years, & that realisation terrifies us, so much that we want to make a mark even at the cost of sacrificing the world & the people in it.
 Instead of letting it be liberation, we let ourselves be chained by the fact of our insignificance. Instead of that being a joy, we let it fester into a wounded sorrow. And that binds us to the effect more than our action.
 
