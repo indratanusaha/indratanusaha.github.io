@@ -1,4 +1,4 @@
-# The heart-wrenching case against Capitalism: Part 1 - The Cries of the Wounded Earth
+# The heart-wrenching case against Capitalism: Part 1 - The Cries of a Wounded Earth
 
 “Man is a rope stretched between the animal and the Overman.”
 (Friedrich Nietzsche, Thus Spoke Zarathustra)
