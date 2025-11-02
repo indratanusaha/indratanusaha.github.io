@@ -8,7 +8,7 @@ It's the realization that many of the formative experiences we've had were all p
 
 “Man, the bravest animal and most prone to suffer, does not deny suffering as such: he wills it, he even seeks it out, provided he is shown a meaning for it, a purpose of suffering.” (Friedrich Nietzsche, The Genealogy of Morals)
 
-This realization that our parents’ suffering within an unjust & oppressive system were acts of meaning arising out of love for their children, not submission. The realization that no matter how many memories are associated with an oppressive system, if it doesn't benefit the common people, we must change it.
+This realization that our parents’ suffering within an unjust & oppressive system were acts of meaning arising out of love for their children, not submission, is a heavy one, made heavy by the fact that the system didn't grant them any choice other than sacrificing their own desires, it's the element of transaction that is the most unsettling. The realization that no matter how many memories are associated with an oppressive system, if it doesn't benefit the common people, we must change it, is the truth of the matter.
 
 The motivation of a financial void is unnatural for humans. Internally, we're wired to be in groups & become a part in it, or lead it, but that's still being a part of the group. There's no leader without a group, but there can be a group without a leader if everyone in the group becomes a sustaining participant, where they won't need to be strung along by a fragile thread.
 
