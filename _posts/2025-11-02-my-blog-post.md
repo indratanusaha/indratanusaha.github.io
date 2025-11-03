@@ -92,33 +92,69 @@ Translation: If I ceased to perform prescribed actions, all these worlds would p
 That is exactly what is happening on a civilizational level.
 
 
-## Numbness & Blatant Ignorance
+## We're reaching a Tipping Point: We need to act before nature corrects itself
 
-
-
-We’re distracted, & although we are guilty of being distracted by social media sites too, if we blame the users only, we'd be pointing fingers at the pawns instead of the board.
-
-
+Our mind is occupied with so much useless stuff from the cancerous economic system & the celebrity relatability cancer that we can't breathe fully to feel the air on our faces & realize that the air is polluted, to feel the pulse of boredom & then create something out of nothing. We're distracted, & although we are guilty of being distracted by social media sites too, if we blame the users only, we'd be pointing fingers at the pawns in the system instead of reconfiguring the system. But here's the thing: we're pawns only until we believe ourselves to be pawns & powerless. Us not choosing to be creators of meaning is us choosing to be mindless consumers & hence, we're choosing to become pawns by sheer ignorance & the dread of knowledge acquired.
 
 “The man who despises himself still respects himself as one who despises.” (Friedrich Nietzsche)
+
+The root cause of this numbness is a duality. We know too much about useless things, celebrities, brands & very little about real issues. We've forgot to read between the lines. Information overload has been weaponizing ignorance from decades. Recently, ChatGPT can't access all the search results, which means, that we need to do our own research instead of outsourcing critical thinking to it. Because there are no overt constraints to information, our brain is amused first, & then it creates useless walls. Notice how before all this information overload, procrastination wasn't a major problem, because we didn't have much choice other than doing what we wanted or had to. 
+The duality is that on one hand, we're fed visuals of corporate success & material things & celebrity struggles, but the medium is social or televised media. Our minds are hacked & divided into worldly ambition & false dopamine release by watching others. We're being made passive in real time, our will & freedom are being eroded & we're accepting that without questioning, while we like & comment endlessly on celebrities' posts. How many celebrities you know have raised voice or awareness for the common people or the climate? What are they contributing by winning or losing some games, or making some mediocre movies?
 
 This illusion of rebellion within comfort is the worst kind of slavery. It is what I earlier wrote in Part 1 as trying to rise within an oppressive system for recognition instead of reconfiguring the system.
 
 From games that simulate freedom to jobs that simulate purpose, the illusion itself has become the product.
 
+There was a proverb in Rome, "give them breads & circuses & they'll never revolt." With the advent of the new information age, the collective consciousness has gone another step back, we've even stopped questioning things.
 
+That brings us to another perspective & to the dreaded question, if we're not worthy enough to be seen as humans by those revered celebrities, why are we revering them? How are they relevant to the well-being of the individual or the planet? 
 
-यद् यद् आचरति श्रेष्ठस्तत्तदेवेतरो जनः।
+The fake dopamine release also leads us to postpone a real aspect of existence, of human connection & instead get stuck in the cycle of striving for a furniture or a phone or a gaming PC, when it's just a tool.
 
-स यत्प्रमाणं कुरुते लोकस्तदनुवर्तते॥
+I'm not against gaming, I've played many PC games too, specifically of the Assassin's Creed franchise, Sekiro: Shadows Die Twice, COD MW4 & some others that I don't remember now. However, I'm against the learned helplessness & the escape from toiling for change that it promotes. If you look at the games, in every story, the protagonist toils for either accomplishment or change, most of the times it is for a higher cause. What happens when games provide a higher purpose & real life doesn't? Well, in this case, Albert Camus would say it doesn't matter as the world is absurd, & he'd carey on with his tasks. Nietzsche would rebel & strive to find a purpose even if it's not visible. But what do most people, people like us do? We numb ourselves to feeling that absurdity or that flame of rebellion, instead, we consume mindlessly, hoping that some piece of entertainment would lend us the centre that we've lost. We forget, & then we live the next day same as the previous. Were humans meant to live this way? Working jobs to add shareholder value for 40 years & then retiring with no home, no finances, no family? Because that is what awaits our generation if the current trajectory isn't changed right now. If games have taught me anything, it's that one must trust his own judgment in service to a cause decided by himself (without blind allegiance), not forget his own judgment or outsource it entirely. And it's also this realization that capitalism is also the reason why the games were created & also the reason why we now have no ownership of bought games & see unfinished games releasing. The profit deadline is really not serving anybody.
 
-“Whatever the great do, others follow; whatever standards they set, the world pursues.” — Bhagavad Gita 3.21
+The tragedy isn’t that we are distracted, it’s that we are being fed into a system of narratively engineered distraction curated with personalization based on algorithms, while the very planet that sustains us burns. And why are we subjugated to this situation? That is because the few who have the power decided that human life is worth less than the profit they make, & it was facilitated by our numbness, but what it really is is a lack of spine to stand for truth.
+
+The evidence of imbalance is everywhere. The natural rhythms of Earth are faltering under the unnatural weight of human greed, while a few people are destroying everything & everyone for their god complex & insecurities. The philosophy of inaction behind this is even more interesting than the facts & therefore, I'll cover that using Vedant in another piece.
+
+From games that simulate rebellion to jobs that simulate freedom, the illusion of control without any free space is the real product.
+What do games provide? An illusion of freedom.
+What does money provide? An illusion of independence.
+
+Why is it an illusion? How else would you explain the fact that those who build houses with their own hands can't afford a house, while someone who sells insurance has multiple mansions?
+Why are some of the hardest workers (blue collar) paid pennies despite of working longer hours & more physically demanding work than anyone? Why is it that someone who sits at a desk & orders around & throws tantrums like a maniac is paid more than all his subordinates combined? Isn't that a modern form of exploitation? If people can't see it despite of it being there, that means that the illusion is working. And that is precisely the problem.
+
+The illusions of freedom, virtual or financial, mask our paralysis. When the capable act in falsehood, the masses imitate them, and decay spreads like a chain reaction.
+
+"यद् यद् आचरति श्रेष्ठस्तत्तदेवेतरो जनः।
+स यत्प्रमाणं कुरुते लोकस्तदनुवर्तते॥" (Bhagavad Gita 3.21)
+
+Translation: Whatever the great do, others follow; whatever standards they set, the world pursues.
+
+Meaning in current context: with social media & narrative engineering, currently, who are the perceived great people alive? Those who are billionaires or celebrities or sportspersons. This is not an attempt to disregard their contribution, but really, what is it they're promoting, if not hyper-individualism? This hyper-individualism is what leads to consumerism, because of the perverse want to replace real purpose & real people with material possessions catered to a doomed culture. What do we get? Empty lives. What do the few get by exploiting us? More money.
+
+We just need to do the math on the financial front to realise how doomed the system is. If we spent 1000$ a day, we'll spend a million by 2.7 years, but at the same rate, we'll spend a billion by 2740 years. And there are people who hoard multiple billions of dollars while there are people sleeping on the streets, empty stomach.
+What happened to the 'end world hunger' goal? Was it just for show? It sure seems that way.
+
+What follows is an excerpt from the now deleted article titled 'The Benefits of World Hunger' posted by United Nations, written by George Kent, a retired University of Hawaii political science professor:
+“For those of us at the high end of the social ladder, ending hunger globally would be a disaster. If there were no hunger in the world, who would plow the fields?” Kent wrote. “Who would harvest our vegetables? Who would work in the rendering plants? Who would clean our toilets? We would have to produce our own food and clean our own toilets. No wonder people at the high end are not rushing to solve the hunger problem. For many of us, hunger is not a problem, but an asset.”
+
+The cruelty is not even hidden anymore. It's out in the open. UN tried to say it was parody, but the author denied that.
+
+The moment the focus of capitalism shifted from delivering for purpose to delivering for profit, the entire system of capitalism screwed itself up. The system itself  enabled that from the top, famously known as trickle down economics, & the subordinates complied & passed this down, & in a way, that has led us to ruin in the present.
+If we look back we'll see that this has existed since the Industrial Revolution, & every generation has had the same complaint with youth, 'they just don't want to work', while completely ignoring the wages, the housing conditions, working conditions, & working hours. That was their guise for 'they don't want to be exploited for those of us who have the money but no purpose for the greater good of the world except bagging a few millions for ourselves'. 
+Sadly, most of us idealize people who are like this. We believe ourselves to be the next in line. But that illusion is breaking now. Faced with truth, even the blind begin to see.
+Now contradictory to my previous statement, the focus of capitalism wasn't ever any purpose except for accumulation of profits for the few at the cost of environment & the workers. Ideally, it is possible, ideologically & practically, it isn't. Capitalism seeks infinite growth in a finite system. Why do I say that the system is finite? Because the resources are finite. The lithium for the batteries is finite, cobalt is finite, land is finite, fossil fuels are finite. Slowly, everything is about to hit the limits. We're reaching a tipping point. There's no more gains to be made unless the gains are of the form of destroying the earth even more rapidly for short-term profit. 
 
 
 
 ### The Awakening: Responsible Action
 
 
+Why do we need to act? 
+
+Because if we don't, we'll just be bystanders while our homes & livelihoods are destroyed & taken from us forcibly, while we stand there convincing ourselves that there was nothing to be done, no fight to be won, & so we didn't fight.
+We are not meant to be living like this, at the dangerous levels of narcissism & individual 
 
 Action is the bridge between knowing and being. The Gita doesn’t glorify passive wisdom; it sanctifies courageous effort.
 
