@@ -2,14 +2,14 @@
 
 To read Part 1, go to this link: https://indratanusaha.github.io/2025/11/01/my-blog-post.html
 
-## The unnatural restriction on Ātmā
+## The unnatural restriction on the soul (ātmā)
 The need for control on resources to extract profit from them via human beings is so restricting & suffocating for us because it is so unnatural, & feels precisely like that.
 
 #### Why is it unnatural?
 
 Because not only is it against nature (evidence: climate change), it is against human nature too.
 
-When the self (beyond body, Ātmā or soul) is dissatisfied, it destroys the outside world just to forget its own insignificance. It happened in Mahabharata specifically in the case of Duryodhana. Whether or not one believes it to be real is a different debate. In that destructive process, that dissatisfied self destroys its surroundings too, while those capable of changing the tide stay silent like Bhishma, Drona & Karna, on the sidelines, reveling in their self-imposed helplessness.
+When the self (beyond body, ātmā or soul) is dissatisfied, it destroys the outside world just to forget its own insignificance. It happened in Mahabharata specifically in the case of Duryodhana. Whether or not one believes it to be real is a different debate. In that destructive process, that dissatisfied self destroys its surroundings too, while those capable of changing the tide stay silent like Bhishma, Drona & Karna, on the sidelines, reveling in their self-imposed helplessness.
 
 “The greatest evil is not doing wrong, but seeing wrong and doing nothing.” (Bhagavad Gita 3.24)
 
