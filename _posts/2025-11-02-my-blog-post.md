@@ -1,4 +1,4 @@
-# The heart-wrenching case against Capitalism: Part 2 – The Unnatural Philosophy of Extracting Profit leading to a Burning Planet
+# The heart-wrenching case against Capitalism: Part 2 – The Unnatural Philosophy of Extracting Profit has left us a Scorched Earth
 
 To read Part 1, go to this link: https://indratanusaha.github.io/2025/11/01/my-blog-post.html
 
