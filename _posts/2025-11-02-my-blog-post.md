@@ -233,4 +233,3 @@ Translation: No one, even for a moment, can remain without action.
 Meaning: to live is to act, and to act rightly is to remember we are part of something larger than ourselves.
 
 
-
