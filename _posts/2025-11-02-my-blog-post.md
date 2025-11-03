@@ -67,7 +67,7 @@ If we trace capitalism to its earliest roots, at first, some people from the vil
 We've reached a point where villages (true village communities in spirit) are vanishing at an alarming rate, same as endangered animals. This is fueled by both the greed induced by late-stage capitalism reaching peaks & also the despicable ignorance of the common people.
 
 
-## Reality Check on Climate Change: we're reaching a tipping point
+## Climate Change: we're reaching a tipping point
 
 The earth has been warning us from the past 7-10 years. The imbalance in the external world mirrors our inner chaos & reflects a civilization that has lost its way for short-term greed.
 
@@ -76,6 +76,7 @@ The earth has been warning us from the past 7-10 years. The imbalance in the ext
 3. Uttar Pradesh's climate has shifted from dry in 2014 to humid from 2018, as someone who lived there, I have witnessed it with my own senses. It also made rainfall more unpredictable. (Sources: UPCCCE-Uttar Pradesh Climate Change and Clean Environment https://share.google/u5B33RDOArfYtb9Dy, https://doi.org/10.9734/ajee/2025/v24i8774, http:// creativecommons.org/licenses/by-nc-nd/4.0/)
 4. Bhubaneswar is suffering from bad AQI (even topped Delhi during Diwali 2025) & pollution by construction rubble from the past 3 years. (Source: Bhubaneswar sees three-fold deterioration in AQI, noise pollution surge https://share.google/LpdP1CWueycMOnBxa)
 5. Coral reefs are in inevitable danger due to climate change induced thermal stresses which would affect millions of people. (Sources: https://www.nature.com/articles/s43247-025-02790-4, https://www.theguardian.com/environment/2025/oct/13/coral-reefs-ice-sheets-amazon-rainforest-tipping-point-global-heating-scientists-report)
+6. Amazon rainforests are heating up & struggling to maintain their energy balance. (Sources: Amazon Forest Heat: Decades of Overheating Post-Fire Threatens Carbon Capture https://share.google/0ZPAKLBTlSZN0SE8f, Climate change in the Amazon | WWF https://share.google/NRSgvGGcwC9Gs60Ze)
 
 “As the fire is covered by smoke, so is knowledge by desire.” (Bhagavad Gita 3.38)
 
