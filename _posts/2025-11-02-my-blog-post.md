@@ -31,7 +31,7 @@ Translation: better one’s own duty imperfectly performed than another’s well
 
 ## Narrative engineering & the "self-made" myth
 
-We have been fed the dream of the “self-made man,” while the system itself ensures most remain exploited. The illusion of opportunity sidelined the reality of ownership of resources.
+We have been fed the dream of the “self-made” person with all the riches, while the system itself ensures most remain exploited. The illusion of opportunity sidelined the reality of ownership of resources.
 No one is self-made. Everyone has parts within themselves that are remnants of the people who loved them. A child comes into the world a blank slate. Everything he accumulates is from his response to stimulus.
 
 From the 1980s, we have been fed the idea of 'work hard & you'll be the next millionaire'. Accounting inflation, that means a billionaire now. The reality that every common person is closer to becoming homeless than a billionaire has been successfully sidelined by narrative engineering. This is a curious case of pretending that 'trickle-down economics' was working. (Read more here: https://en.wikipedia.org/wiki/Trickle-down_economics)
