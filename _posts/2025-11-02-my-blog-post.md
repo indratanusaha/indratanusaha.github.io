@@ -20,12 +20,13 @@ Capitalism, in its current stage, inverts that intrinsic wiring & tries to restr
 “If we have our own why in life, we shall get along with almost any how. Man does not strive for pleasure, only the Englishman does.” (Friedrich Nietzsche, Twilight of the Idols)
 
 And the moment we are rendered incapable or too strong for the system, we are ejected from it.
-Someone who speaks up for safety is fired from his job, not only because of perceived disobedience but to make an example of the truthful person, so that the rest comply in fear & abandon their truths.
+Someone who speaks up for worker & process safety is fired from his job, not only because of his perceived disobedience but to make an example of the truthful person, so that the rest comply in fear & abandon their the way of truth. But it's not sustainable. Truth always cuts deep, & the scars stay, even after fading.
 
 Here's my answer to that false compliance.
 
-श्रेयान्स्वधर्मो विगुणः परधर्मात्स्वनुष्ठितात्।
-“Better one’s own duty imperfectly performed than another’s well executed.” (Bhagavad Gita 3.35)
+"श्रेयान्स्वधर्मो विगुणः परधर्मात्स्वनुष्ठितात्।" (Bhagavad Gita 3.35)
+
+Translation: better one’s own duty imperfectly performed than another’s well executed.
 
 
 ## Narrative engineered towards becoming the next billionaire through “hard work”
@@ -150,7 +151,6 @@ Now contradictory to my previous statement, the focus of capitalism wasn't ever 
 
 ### The Awakening: Internal
 
-
 Why do we need to act? 
 
 Because if we don't, we'll just be bystanders while our homes & livelihoods are destroyed & taken from us forcibly, while we stand outside convincing ourselves that there was nothing to be done, no fight to be won, & so we didn't fight.
@@ -165,14 +165,25 @@ A asks his mother, 'mom, why does that kid sell water bottles? He's of the same 
 
 This isn't textbook bad advice, in fact, it is practical & pragmatic when considering the context of the economic state of the world. But we can't just ignore the disparity anymore. Even if one of us has the will to change it, we must, & not just for goodwill or for the future generations, but for ourselves too. It is here where we must question ourselves, 'who exactly is this system of economic chance actually serving?'. After that, the natural next step would be to act.
 
+If you're still not convinced, you must read what Karl Marx put into words about value creation in capitalism what everyone who is in the system knows but doesn't quite articulate it. Paraphrasing, if you work at a company for 20 USD/hour, then for the owner to pay the employee this much, he must be able to sell more than that to break-even. And we all know how greed works. But there's a limit to that, which the owners aren't ready to accept. They want an infinite growth in a system with finite resources. That is cancerous in cellular biology terms, & therefore, simply not possible unless the tradeoff is total annihilation of the planet.
+
+I ask you, what happens when greed is legitimized by the system? The act which would've been heinous in a sane society, is now considered godly. Nietzsche said, God is dead, & we've killed him. That saying still holds, only the gods have changed. Greed, theft, exploitation are our new gods. And the ones who see through it, we call them insane. The ones who advocate for food & shelter & dignified living for everyone regardless of their monetary contribution, they're labeled 'against progress'. But what is progress? Is it the notion of increasing stock value while the value of life falls below baseline? 
+
+But we must not fall into despair. Despite of the current state of the world, we the youth still have the will & the power to change it. We must not forget that. We must act.
+
+Think rationally, if the system improves, the individual's life improves, & the common people's odds of living a better life with the planet also not burning down is a possibility. Ofcourse it won't suffice greed, but then again, greed can't be satisfied by anything, because it doesn't originate from the outside. Greed is an external response to an internal void, something that must be filled via introspection, not by burning the planet for personal gains in networth.
+
+The structure of society is that we must rely on each other for many things. Capitalism advises against this, claiming that it's products & services, the latest being human-like AI can replace that dependency. Where has that led us? We now want the benefits of society while also mentally detaching from that same society. We want people to stand up for our rights, but won't stand up for theirs. Is that not hypocrisy? But we've become so numb that we don't even recognise that.
+Before corporate education, there were Gurukuls, & in Gurukuls, education was free. There was funding involved, yet, many resources were contributed by people who didn't expect to gain from their acts of donating. There were no tax benefits then, yet, people did, because they wanted to be active participants in their children's education. Contrast that to modern education, parents rarely pay attention to any other student except their own child. From childhood, the child is subjected to words like 'look out for yourself, you must score highest, you must do better than others'. There are exceptions, surely, but that doesn't change the usual norm. See the issue yet? Parents have also outsourced their agency & they expect the school to take care of their child, but they won't bother to be actively involved. This is facilitated by again, the capitalistic demand of extracting more profit from workers, in this case, the parents. The education system of nowadays deserves another detailed post.
+
+Armed with this realization, we must act now.
 
 Action is the bridge between knowing and being. The Gita doesn’t glorify passive wisdom; it sanctifies courageous effort.
 
-कर्मण्येवाधिकारस्ते मा फलेषु कदाचन।
+"कर्मण्येवाधिकारस्ते मा फलेषु कदाचन।
+मा कर्मफलहेतुर्भूर्मा ते संगोऽस्त्वकर्मणि॥" (Bhagavad Gita 2.47)
 
-मा कर्मफलहेतुर्भूर्मा ते संगोऽस्त्वकर्मणि॥
-
-“You have the right to action alone, never to its fruits.” — Bhagavad Gita 2.47
+Translation: You have the right to action alone, never to its fruits. 
 
 When Krishna urged Arjuna to fight, it wasn’t for conquest, it was for clarity of purpose.
 
@@ -187,19 +198,29 @@ How much time do we think we have now that the truth about climate change is sur
 
 ### The Awakening: External Manifestation
 
+We were not born to be efficient machines in a system that destroys our humanity & our earth, for a made-up currency in a made-up system that has become cancerous for our current state of the world, while simultaneously leading to this state.
+We weren't born to watch idly as the planet is destroyed while raking profits for a few.
+We were meant to dedicate ourselves to build meaning with our hands & mind, to feel the wind on our faces & to sit among trees, to do pullups on trees & squats in open fields, & to plough our fields, to live in harmony with nature, not in AC rooms all day.
+We've digressed so far from our inherent nature, it's tragic.
+We no longer hear cicadas, but the hum of ACs, trying to hide the fever of the earth (read: global warming).
+We breathe filtered air to not die, & consume filtered lies to find our illusion of purpose. When real purpose isn't found, it's felt.
 
+Before language existed, we could communicate. We don't need corporate sophistication, nor do we need to intellectualize someone's suffering to feel it. Someone who is having a hard time to feed his sick child is an indicator of the system's failure than his own. Our senses are enough to feel that, we don't need that parent to intellectualize his pain for his child.
+We don't need to intellectualize that our earth is becoming uninhabitable day by day, we can feel it in the air, weather, water & life.
+If we look for connections in philosophy, what we've reached now is the anti-thesis of the karmayoga Krishna spoke of in Gita & the affirmation to the universe that Nietzsche wrote.
+But we don't need connections with philosophy to act. We need to realize the uncomfortable truth, accept it in the basest of languages without sophistication, & even without language, accept the discomfort & stinging feeling, & let it transmute into action. In simple terms, we must get out of our own way & stop sabotaging ourselves before the system dries us all up.
+The first step begins with taking care of our own body, which is a medium to channel our will & to protect what needs protection. Start small. Start with a single knee pushup. But start regardless, & don't stop. Simultaneously, mind component also needs to be there. For that, read any article or poem for a start. Not only will you see another way of expression, you'll try to get in the shoes of another person. That diversity in thought is absolutely essential.
 
-“I tell you: one must still have chaos in oneself to give birth to a dancing star.” — Nietzsche, Thus Spoke Zarathustra
+I pause my writing for now with this question for everyone, including me:
+If we don't act now to stop climate change & become unified, will we have anything to save in 4 years? The clock of nature is ticking, & whether we live or die, nature will continue its course. It happened with dinosaurs, it can happen with humans too. And when it inevitably happens, will we be scrolling, or will we have acted by then? Only time will tell.
 
+Our not choosing to act will still be a choice to not act, remember that.
 
+"न हि कश्चित्क्षणमपि जातु तिष्ठत्यकर्मकृत्।" (Bhagavad Gita 3.5)
 
-न हि कश्चित्क्षणमपि जातु तिष्ठत्यकर्मकृत्।
+Translation: No one, even for a moment, can remain without action.
 
-“No one, even for a moment, can remain without action.” — Bhagavad Gita 3.5
-
-
-
-Thus, to live is to act, and to act rightly is to remember we are part of something larger than ourselves.
+Meaning: to live is to act, and to act rightly is to remember we are part of something larger than ourselves.
 
 
 
