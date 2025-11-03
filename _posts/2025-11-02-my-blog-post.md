@@ -1,5 +1,4 @@
-# The heart-wrenching case against Capitalism: Part 2 – The Unnatural Philosophy of Capitalising on Resources
-
+# The heart-wrenching case against Capitalism: Part 2 – Inhumane Philosophy, Immediate Intervention is Required 
 To read Part 1, go to this link: https://indratanusaha.github.io/2025/11/01/my-blog-post.html
 
 ## The unnatural restriction on Ātmā
@@ -29,7 +28,7 @@ Someone who speaks up for worker & process safety is fired from his job, not onl
 Translation: better one’s own duty imperfectly performed than another’s well executed.
 
 
-## Narrative engineering & the "self-made myth"
+## Narrative engineering & the "self-made" myth
 
 We have been fed the dream of the “self-made man,” while the system itself ensures most remain exploited. The illusion of opportunity sidelined the reality of ownership of resources.
 No one is self-made. Everyone has parts within themselves that are remnants of the people who loved them. A child comes into the world a blank slate. Everything he accumulates is from his response to stimulus.
@@ -71,16 +70,19 @@ We've reached a point where villages (true village communities in spirit) are va
 
 The earth has been warning us from the past 7-10 years. The imbalance in the external world mirrors our inner chaos & reflects a civilization that has lost its way for short-term greed.
 
-1. Breathing as a non-smoker in Delhi is similar to being a chain smoker somewhere else. Delhi gives the people black lungs without smoking, for free. A doctor advises people to leave Delhi for 6-8 days. (Source: https://indianexpress.com/article/cities/delhi/chronic-lung-disease-leave-delhi-pulmonologist-pollution-haze-10335960/)
-2. Kolkata's AQI has degraded so much that it is among the top 10 most polluted cities globally. (Source: https://www.iqair.com/newsroom/kolkata-among-top-10-most-polluted-cities-in-the-world-10-9-2025)
-3. Uttar Pradesh's climate has shifted from dry in 2014 to humid from 2018, as someone who lived there, I have witnessed it with my own senses. It also made rainfall more unpredictable. (Sources: UPCCCE-Uttar Pradesh Climate Change and Clean Environment https://share.google/u5B33RDOArfYtb9Dy, https://doi.org/10.9734/ajee/2025/v24i8774, http:// creativecommons.org/licenses/by-nc-nd/4.0/)
-4. Bhubaneswar is suffering from bad AQI (even topped Delhi during Diwali 2025) & pollution by construction rubble from the past 3 years. (Source: Bhubaneswar sees three-fold deterioration in AQI, noise pollution surge https://share.google/LpdP1CWueycMOnBxa)
-5. Coral reefs are in inevitable danger due to climate change induced thermal stresses which would affect millions of people. (Sources: https://www.nature.com/articles/s43247-025-02790-4, https://www.theguardian.com/environment/2025/oct/13/coral-reefs-ice-sheets-amazon-rainforest-tipping-point-global-heating-scientists-report)
-6. Amazon rainforests are heating up & struggling to maintain their energy balance. (Sources: Amazon Forest Heat: Decades of Overheating Post-Fire Threatens Carbon Capture https://share.google/0ZPAKLBTlSZN0SE8f, Climate change in the Amazon | WWF https://share.google/NRSgvGGcwC9Gs60Ze)
+1. Hurricane Melissa added evidence to the already warming ocean. (Sources: Monstrous Hurricane Melissa prompted renewed climate change questions https://share.google/IPoUjsCmlWCQNgipY, Hurricane Melissa | Grantham Institute – Climate Change and the Environment | Imperial College London https://share.google/qA6solJ5DnptEGZiV)
+2. Breathing as a non-smoker in Delhi is similar to being a chain smoker somewhere else. Delhi gives the people black lungs without smoking, for free. A doctor advises people to leave Delhi for 6-8 days. (Source: https://indianexpress.com/article/cities/delhi/chronic-lung-disease-leave-delhi-pulmonologist-pollution-haze-10335960/)
+3. Kolkata's AQI has degraded so much that it is among the top 10 most polluted cities globally. (Source: https://www.iqair.com/newsroom/kolkata-among-top-10-most-polluted-cities-in-the-world-10-9-2025)
+4. Uttar Pradesh's climate has shifted from dry in 2014 to humid from 2018, as someone who lived there, I have witnessed it with my own senses. It also made rainfall more unpredictable. (Sources: UPCCCE-Uttar Pradesh Climate Change and Clean Environment https://share.google/u5B33RDOArfYtb9Dy, https://doi.org/10.9734/ajee/2025/v24i8774, http:// creativecommons.org/licenses/by-nc-nd/4.0/)
+5. Bhubaneswar is suffering from bad AQI (even topped Delhi during Diwali 2025) & pollution by construction rubble from the past 3 years. (Source: Bhubaneswar sees three-fold deterioration in AQI, noise pollution surge https://share.google/LpdP1CWueycMOnBxa)
+6. Coral reefs are in inevitable danger due to climate change induced thermal stresses which would affect millions of people. (Sources: https://www.nature.com/articles/s43247-025-02790-4, https://www.theguardian.com/environment/2025/oct/13/coral-reefs-ice-sheets-amazon-rainforest-tipping-point-global-heating-scientists-report)
+7. Amazon rainforests are heating up & struggling to maintain their energy balance. (Sources: Amazon Forest Heat: Decades of Overheating Post-Fire Threatens Carbon Capture https://share.google/0ZPAKLBTlSZN0SE8f, Climate change in the Amazon | WWF https://share.google/NRSgvGGcwC9Gs60Ze)
 
 “As the fire is covered by smoke, so is knowledge by desire.” (Bhagavad Gita 3.38)
 
 Our desire for consumerism-fueled individualism has covered our planet in flames, & yet we scroll.
+
+Nature's correction won't be pretty, it would collapse the economy, & leave everyone on the streets stranded & fighting for food, water, shelter & supplies. In the current trajectory of our planet, it's not a question of if, but when. That is why urgent intervention & action is required.
 
 ## The felt truth
 
