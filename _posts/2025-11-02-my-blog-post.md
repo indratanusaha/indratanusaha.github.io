@@ -148,17 +148,25 @@ Now contradictory to my previous statement, the focus of capitalism wasn't ever 
 
 
 
-### The Awakening: Responsible Action
+### The Awakening: Internal
 
 
 Why do we need to act? 
 
-Because if we don't, we'll just be bystanders while our homes & livelihoods are destroyed & taken from us forcibly, while we stand there convincing ourselves that there was nothing to be done, no fight to be won, & so we didn't fight.
-We are not meant to be living like this, at the dangerous levels of narcissism & individual 
+Because if we don't, we'll just be bystanders while our homes & livelihoods are destroyed & taken from us forcibly, while we stand outside convincing ourselves that there was nothing to be done, no fight to be won, & so we didn't fight.
+We are not meant to be living like this, at the dangerous levels of narcissism & individual accomodation for a few while nillions are starving. We are not meant to be living only on the weekends & getting ourselves ready for another day in the office. However, the realization that everything that we'd been building towards was not what we thought it was, is a heavy one. Therefore, I realize the initial skepticism & criticism it might draw until the truth is right in front of their faces.
+
+Consider this example & see if you can still deny the system's failure: Consider an urban city. A couple wants to admit their child A to a school, & the school says that A has to pay an application fee for admission to a school, which he doesn't pay himself, his parents do. Another child B works outside the school & in the neighboring areas, selling water bottles with his father or mother. That underprivileged child is in tattered clothes, his face is dirty due to the air pollution, he is barefoot in the scorching heat. He can't afford slippers. Needless to say, he can't afford schooling either. A few days pass. The child of the well-to-do couple has now gotten admission in the school after the hefty admission fee & yearly fee, which they have contributed by spending some of their savings & taken loans, because they themselves can't cover the cost because of inflation, despite being a working couple.
+
+It's the second day of A in the school. A brings lunch from his home & comes via the school bus. He gets down from the bus, looks around & sees B selling water bottles regularly. He's intrigued by B, but his parents have advised him to not go near him, & being the obedient child he is, he complied. The system breeds compliance, yet the only time we're free is outside of it.
+
+On the day of Parents-Teacher Meeting, A brings his mother, his father couldn't come because his manager called him for extra work. B, seeing many adults, comes near the school & tries selling them water bottles. Some buy, some don't, some just watch, & some advise him to go to school. B becomes disheartened, collects his money & goes away.
+A asks his mother, 'mom, why does that kid sell water bottles? He's of the same age as me, why doesn't he go to the same school?'.  The lady says, 'It's because his parents can't afford to send him to school, because they're poor.'. A asks, 'but why does being poor have to do with education?'. The lady said, 'ideally, it doesn't, & he is enrolled in a government school, but since his family can't afford a private school, they don't encourage him to go to school, & the kid is losing his childhood because he has to provide for the family'. A asked, 'that means if we were a poor family, I would also have had to work?'. The lady was silent, she didn't want to say the truth in front of other parents. Another person quipped, 'that's why you should work hard so you don't end up like his father'. 
+
+This isn't textbook bad advice, in fact, it is practical & pragmatic when considering the context of the economic state of the world. But we can't just ignore the disparity anymore. Even if one of us has the will to change it, we must, & not just for goodwill or for the future generations, but for ourselves too. It is here where we must question ourselves, 'who exactly is this system of economic chance actually serving?'. After that, the natural next step would be to act.
+
 
 Action is the bridge between knowing and being. The Gita doesn’t glorify passive wisdom; it sanctifies courageous effort.
-
-
 
 कर्मण्येवाधिकारस्ते मा फलेषु कदाचन।
 
@@ -166,19 +174,18 @@ Action is the bridge between knowing and being. The Gita doesn’t glorify passi
 
 “You have the right to action alone, never to its fruits.” — Bhagavad Gita 2.47
 
-
-
-“Become who you are.” — Nietzsche
-
-
-
-When Krishna urged Arjuna to fight, it wasn’t for conquest—it was for clarity of purpose.
+When Krishna urged Arjuna to fight, it wasn’t for conquest, it was for clarity of purpose.
 
 Likewise, our battle today is not against people but against the systems within us that choose paralysis over participation.
+We must act, not because the future would be certain, but because not acting would be suppression of our will in favor of a system that is no longer serving us, & we'd hate ourselves for it, once we run out of time.
 
 
+Question for us as a species that we must ask not only to ourselves but to everyone around us:
 
-### The Core & Communication
+How much time do we think we have now that the truth about climate change is surfacing & the greed facilitated by capitalism is coming to the forefront?
+
+
+### The Awakening: External Manifestation
 
 
 
