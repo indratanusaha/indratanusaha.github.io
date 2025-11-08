@@ -113,16 +113,19 @@ We see that if the current trajectory of the education system doesn't make space
 
 ## The solution
 
-### Rerouting to curiosity
+### Rerouting to curiosity & connection to truth
 As a species, we have reached a point where we don't need consistent churning of profits anymore. We have enough resources to solve world hunger & end the housing crises of the world. If policies are stopping those remedies, then that is an intent problem, not a resource problem.
 Therefore, we must reroute our education system towards curiosity now, otherwise, it will be too late.
-A nation of thinkers cannot be conquered, not by money or manipulation.
+A nation of thinkers cannot be conquered, not by money or manipulation. For its needs, it can create might.
 Above all, we have to remember what curiosity is & why it must retake its place as the driving force in education.
 Curiosity is the soul’s first language, a child wonders before he learns to express it, if we suppress that instinct, the body forgets how to dream & how to act decisively.
 Labor will always be required, but that is why it is even more important to find satisfactory answers to the question, 'who does it benefit?'.
 The purpose of learning is not to escape labor, but to make every act of work meaningful. 
 Education must again become a medium of freedom, not just employment. Employment was a byproduct of it before Rockefeller's redesign, & it is time for remembrance now.
-For that, a leveling education system is required.
+A community is as important as the education system, it has to be a part of the system, isolated, the system can't do much.
+As for connection to truth, curiosity itself is a search for the truth.
+
+To facilitate these, a leveling education system is required.
 
 ### What is a leveling education system & why is it absolutely essential now?
 Think of an educational system as a leveler. It shouldn't matter what the resources of the parents are, the schooling should be fair. In essence, I don't think that the financial barrier to schools should exist, nor should schooling be commoditized. That is where state education comes in. It could be that leveler.
