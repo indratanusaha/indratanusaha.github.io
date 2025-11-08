@@ -1,12 +1,15 @@
 ### The heart-wrenching case against Capitalism: Part 3 - Modern Education System
 
-## Prelude from Part 1 & 2
+## Prelude from parts 1 & 2
+
+Link to part 1: https://indratanusaha.github.io/2025/11/01/my-blog-post.html
+Link to part 2: https://indratanusaha.github.io/2025/11/02/my-blog-post.html
 
 So far, we've looked at the wounds & infection on the earth & humanity under the capitalist system, with part 1 mainly concerned with resource hoarding (wound) & part 2 with the unnatural philosophy of extracting profit where there is none (infection). Now comes the third part, the driving force of engineered numbness. It is a reactor that takes all kinds of alive children as input and gives numb, hollowed-out, compliant adults as output, where the output forgets that they are part of nature, & considers themselves different from it in lieu of their degrees & perceived knowledge, while the capitalistic consumerism drives them towards insanity, conveniently numbing their humanity & making them proud of their ignorance, at the same, bestowing upon them learned helplessness. A simple fact is conveniently ignored: we still need clean air to breathe.
 
 If capitalism is considered a chariot, then the previous two parts were its wheels, & now comes the charioteer - the one who facilitates ignorance, weaponizes curiosity against the curious & sows seeds of despair among those not privileged enough to afford expensive education. We will also look at how this is breaking apart a society from within & wonder whether the system is accidental or if the system works exactly as intended. In both scenarios, change is imminent & urgently required. In no case would you, the reader get the privileged excuse of ignorance.
 
-## Intent & Origin
+## Intent & origin
 A civilization reveals its intent by the way it educates its children. Ours, in its current state reveals a will to domesticate the next generations.
 
 Consider the syllabus of civil services. It is mostly general knowledge coupled with excellent articulation. Then why is the education system such that any student doesn't think in connections, rather in fragments?
@@ -40,14 +43,14 @@ Translation: Be equal in pleasure and pain, gain and loss, victory and defeat.
 
 But there's another aspect of the same truth. The system only holds as much power as we believe it to hold on us. Without our belief, it loses its meaning. Even in mythology, the gods needed the prayers of devotees to stay strong, & this is just a man-made system.
 
-## The Design & Greed
+## Design and greed
 
 Capitalism, by design, empowers the owners of resources & not the creator, that is why there's always an ongoing geopolitical fight for resources somewhere on the globe. It's about obtaining control first, not freedom. Whoever controls resources controls the economy. Whoever controls the economy controls the politics. Whoever controls politics controls the means to enforce their will (however destructive) upon the whole world. That force isn't through military power only, it is through control of resources.
 
 Human greed works in a way that once the then owners realized how fragile they were in the control of resources, they feared giving up control. So they made safeguards for their protection, not just physically, but mentally too. That is why before a new compliance rollout, the 'change' in management & policy is superficially taught & therapeutically imparted as vaccines, in truth, that is to breed compliance on a new lower level than the previous one. Essentially, they tighten their leashes since a tender age so that no one gets the free time & space to wonder aimlessly, to think of understanding atleast their own mind. The system makes us forget ourselves so that we remain cogs in the machine, all replaceable. There is no shortage of free & paid mouthpieces for the evil, & as is seen, many people propagate those same views, all in the hope of either being noticed or someday being in the resource owners' position, even though statistically, it is almost impossible without inheritance.
 
 
-## The Engineered Division
+## The engineered division
 The education system should ideally contain every subject related to a country's resources, welfare, harm, international relations, geography, geopolitics & past so that no citizen can have the excuse of staying ignorant. This kind of curriculum needs to be present everywhere from the schools to colleges, compulsorily, even without science. Language is a tool, & experience with different tool makes the next learning experience relatively easier by continuity.
 If someone looks at politics & says that they aren't interested so they won't study, that isn't enough reason to cut it. Everything that we see, consume, or produce is influenced by politics. From the first drop of water to the last barrel of oil reaching the port, everything is either working or not due to geopolitics, & much of it is influenced by geography.
 
@@ -73,7 +76,7 @@ Narrative engineering works in such a way that hollow specialization is revered 
 
 That might explain why many of us knew this quote only half in childhood, "a jack of all trades is a master of none" & we took it as some doctrine, only to find out that the full quote was "a jack of all trades is a master of none, but often times better than a master of one".
 
-## Opening our eyes to the failure of the education system
+## Opening our eyes to the failure of the modern education system
 To know the fallacy of a system, one must have a knowledge of the system. This is where the divisive modern education comes in & really shines through.
 The syllabus isn't completely at fault, atleast in terms of history. If someone manages to read everything of every subject from just the NCERT books, they will develop a systemic understanding, that would go under the lines & beneath the pretty words of newspapers & media.
 
