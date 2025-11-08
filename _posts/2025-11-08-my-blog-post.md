@@ -3,6 +3,7 @@
 ## Prelude from parts 1 & 2
 
 Link to part 1: https://indratanusaha.github.io/2025/11/01/my-blog-post.html
+
 Link to part 2: https://indratanusaha.github.io/2025/11/02/my-blog-post.html
 
 So far, we've looked at the wounds & infection on the earth & humanity under the capitalist system, with part 1 mainly concerned with resource hoarding (wound) & part 2 with the unnatural philosophy of extracting profit where there is none (infection). Now comes the third part, the driving force of engineered numbness. It is a reactor that takes all kinds of alive children as input and gives numb, hollowed-out, compliant adults as output, where the output forgets that they are part of nature, & considers themselves different from it in lieu of their degrees & perceived knowledge, while the capitalistic consumerism drives them towards insanity, conveniently numbing their humanity & making them proud of their ignorance, at the same, bestowing upon them learned helplessness. A simple fact is conveniently ignored: we still need clean air to breathe.
@@ -16,7 +17,9 @@ Consider the syllabus of civil services. It is mostly general knowledge coupled 
 
 Why is the education system designed to reinforce the truths that it propagates, through rote & repetition instead of giving the space for critical thinking to emerge?
 
-For that, we'd have to go to the history of the modern education system. It started with John D. Rockefeller. Whether or not he actually said, "I want a nation of workers, not thinkers", the system yielded the same results. That started the rot effectively, which has led us to the current situation we're in.
+For that, we'd have to go to the history of the modern education system. It started with John D. Rockefeller in 1902. Whether or not he actually said, "I want a nation of workers, not thinkers", the system yielded the same results. That started the rot effectively, which has led us to the current situation we're in. (Read more here: https://en.wikipedia.org/wiki/General_Education_Board)
+
+Even though Rockefeller is widely considered to be the face of this institutionalized education system, it goes even back in history, to the Prussian Education System wherein the compulsory attendance & teacher training were introduced. (Read more here: https://en.wikipedia.org/wiki/Prussian_education_system)
 
 Following is an excerpt from General Education Board, Occasional Papers, No. 1 "The country school of tomorrow"-
 "In our dream, we have limitless resources and the people yield themselves with perfect docility to our molding hand. The present educational conventions fade from their minds; and, unhampered by tradition, we work our own good will upon a grateful and responsive rural folk. We shall not try to make these people or any of their children into philosophers or men of learning, or men of science. We have not to raise up from among them authors, editors, poets or men of letters. We shall not search for embryo great artists, painters, musicians nor lawyers, doctors, preachers, politicians, statesmen, of whom we have an ample supply…The task we set before ourselves is very simple as well as a very beautiful one, to train these people as we find them to a perfectly ideal life just where they are… So we will organize our children into a little community and teach them to do in a perfect way the things their fathers and mothers are doing in an imperfect way, in the homes, in the shops and on the farm."
