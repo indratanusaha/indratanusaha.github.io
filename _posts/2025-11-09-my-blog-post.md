@@ -1,4 +1,4 @@
-### The heart-wrenching case against Capitalism: Part 3 - The modern education system of manufacturing mass compliance
+### The heart-wrenching case against Capitalism: Part 3 - Modern Education System
 
 ## Prelude from Part 1 & 2
 
