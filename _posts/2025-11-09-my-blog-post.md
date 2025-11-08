@@ -1,4 +1,4 @@
-### The heart-wrenching case against Capitalism: Part 3 - The modern education system: a critique of the intent of creating workers, not thinkers
+### The heart-wrenching case against Capitalism: Part 3 - The modern education system of manufacturing mass compliance
 
 ## Prelude from Part 1 & 2
 
