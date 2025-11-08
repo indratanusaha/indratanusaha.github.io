@@ -26,6 +26,8 @@ Following is an excerpt from General Education Board, Occasional Papers, No. 1 "
 
 This education system was made for compliance, to make replaceable cogs for the capitalist machine, who will churn out profits until their deaths, & then be replaced in an instant.
 
+"When one trains his conscience, it kisses the hand that beats it." (Friedrich Nietzsche, Beyond Good and Evil)
+
 Most of us have accepted this compliance unknowingly because we lost sight of inner alignment, & the system made us forget our duty to ourselves.
 
 "अथ चेत्त्वमिमं धर्म्यं संग्रामं न करिष्यसि।
@@ -67,10 +69,13 @@ When it's about clearing competitive exams, it becomes about competition, about 
 Any civil services syllabus is what a general citizen of India should be aware of, in that detail. There is no reason that one should be aware of those subjects only if one is preparing for the civil services exam. That is the fragmentation I wrote about in the previous paragraphs.
 
 ## Enough to perform, not enough to understand & intervene
-It is, I suppose, unknowingly, a devious & hideous plan of those who designed the system originally, to give everyone enough snippets of information so that we can perform our roles with just enough efficiency to keep the system from failing, but we can't integrate it with a different role, nor do we get enough free time for that that it can happen naturally. Our awareness of our own ignorance keeps us compliant & the resource hoarders in power, & our prideful resistance towards learning anything new, & connecting across systems empowers them & designs the machinery towards even more compliance, to a point where basic questions now seen outrageous.
+It is, I suppose, unknowingly, a devious & hideous plan of those who designed the system originally, to give everyone enough snippets of information so that we can perform our roles with just enough efficiency to keep the system from failing, but we can't integrate it with a different role, nor do we get enough free time for that that it can happen naturally. Our awareness of our own ignorance keeps us compliant & the resource hoarders in power, & our prideful resistance towards learning anything new, & connecting across systems empowers them & designs the machinery towards even more compliance, to a point where asking basic questions are now considered outrageous.
 
 But we must not let ourselves be fragmented. So what if someone is an engineer by education? There's no conscience that dictates that a person must find his truth only in engineering.
+
 The division we see exists because we let it control our minds, & also because we compartmentalize ourselves. Before anyone oppresses us, we do that to ourselves. We tell ourselves we're being wise, that we're aligning our dreams with reality, that we're being pragmatic, when in truth, we're avoiding the reality of what comes after we've accepted our ignorance fully.
+
+"The only way to deal with an unfree world is to become so absolutely free that your very existence is an act of rebellion." (Albert Camus, The Rebel)
 
 Here I am reminded of a line from Fyodor Dostoevsky's Crime & Punishment "...your worst sin is that you have destroyed and betrayed yourself for nothing. Isn’t that fearful? Isn’t it fearful that you are living in this filth which you loathe so, and at the same time you know yourself (you’ve only to open your eyes) that you are not helping anyone by it, not saving anyone from anything?"
 
@@ -109,9 +114,12 @@ The joy goes away because we (propagated by the system) are so focused on immedi
 
 A student tries to learn maths, we quiz him on tables, not on how he imagines the square of two numbers to be, & even less on why he is squaring the numbers in the first place. We ask them about quadrants, while never asking them if they can understand where the quadrants exist.
 
-## Polymath & the extreme extents to which they're pushed
+## Polymaths & the extreme extents to which they're pushed
 
-Of course, there are a few who figure out the visualizations by themselves, & it starts showing in their results, sometimes with better outer metrics (marks), & sometimes with worse outer metrics. We call them gifted or cursed, more studious or frivolous, when in truth, their sensory investment is just more by sheer chance with the difference being in their ability to channel it in an exam, but that doesn't erase the truth that their being is more aligned & integrated in the moment when knowledge was imparted, & that they put into practice what others took at face value. Sometimes, those few can connect geography with maths & with history & politics simultaneously, & they're called polymath. A success! Sometimes, the system spits them out entirely. A tragedy! And then we forget about both, convincing ourselves that their failure or success was due to luck or fortune instead of looking at the tools that enabled such a drastic outcome that went both ways, & often it goes the wrong way than right.
+Of course, there are a few who figure out the visualizations by themselves, & it starts showing in their results, sometimes with better outer metrics (marks), & sometimes with worse outer metrics. We call them gifted or cursed, more studious or frivolous, when in truth, their sensory investment is just more by sheer chance with the difference being in their ability to channel it in an exam, but that doesn't erase the truth that their being is more aligned & integrated in the moment when knowledge was imparted, & that they put into practice what others took at face value. Sometimes, those few can connect geography with maths & with history & politics simultaneously, & they're called polymath. A success! Sometimes, the system spits them out entirely. A tragedy! And then we forget about both, convincing ourselves that their failure or success was due to luck or fortune instead of looking at the tools that enabled such a drastic outcome that went both ways, & oftentimes it goes the wrong way than right in the context of the student.
+
+"No shepherd and one herd! Everybody wants the same, everybody is the same: whoever feels different goes voluntarily into a madhouse." (Friedrich Nietzsche, Thus Spoke Zarathustra)
+
 The modern education system discourages the emergence of polymaths by filling up the free time of kids with useless assignments & compliance mandates. Parents should ideally question that who does that huge amount of workload serve, & why is their child not getting any free time to just exist. But they accept the golden chains of compliance for their children willingly, & tie them even tighter around their necks. They call it protection, preparation, even love. But what it really is is fear. Fear of seeing that there could've been another way instead of being stuck with books all day, of seeing that performing a step-over or a roulette on FIFA 14 can carry over to applying a math trick or visualizing the 3rd quadrant, fear of seeing that playing badminton could teach more about projectile motion than a physics chapter ever could, fear of discovering connections across subjects & feeling hollow for not trying that themselves.
 The education system currently worships tools as gods & treats understanding as something rare, unnatural even. The inverse is true. Tools are a medium to intuit & test understanding, but understanding isn't optional. Otherwise, we get hollowed-out individuals, who cannot think across systems, & then the job market rejects them saying they can't function 'cross-functionally', which is just a jargon way of saying that we don't want to take the time to teach you, but we expect you to be ready from day 0. This also reflects that there is an oversupply of the same type of results (graduates) from the same type of education (across colleges), but can we really expect a difference in products (potential employees) when the raw materials (institutionalized school students) & process parameters (course curriculum) are same every time?
 This is also why the backdoor entry or the 'networking' part of the job search is so highlighted now & so many influencers have have built courses out of thin air for teaching 'networking'. Will probably write more on this normalization of unnatural tendency later. Back to the education system.
@@ -139,6 +147,8 @@ To facilitate these, a leveling education system is required.
 Think of an educational system as a leveler. It shouldn't matter what the resources of the parents are, the schooling should be fair. In essence, I don't think that the financial barrier to schools should exist, nor should schooling be commoditized. That is where state education comes in. It could be that leveler.
 Now, about the educational system being a leveler regardless of the state of the previous generation. It boils down to ethics. Do you believe that just because a child was born poor, he doesn't deserve quality education? Or do you believe that regardless of the economic capability of the parents, the child should get access to quality education?
 If a talent in any field is lost due to some inability of the previous generation, then it is a net negative for the country & the world, & that empty space precisely gives the space for evil to rise, or inequality to seep in & fill the cracks.
+
+"Man is condemned to be free; because once thrown into the world, he is responsible for everything he does." (Jean-Paul Sartre, Being and Nothingness)
 
 How many Einsteins couldn't afford schooling? How many geniuses have we lost due to the economic barrier of education?
 If anything, the answer to these questions shows what kind of an equitable & righteous person someone is, regardless of the mask they put on their faces to pretend righteousness.
@@ -180,8 +190,7 @@ We must understand that every child suffocated by exams is another instance of c
 Every teacher who still dares to inspire rather than only instruct is a revolutionary.
 Every student who chooses to wonder instead of memorize reclaims curiosity, even if for one moment.
 
-To end with a Bhagavad Gita shloka,
-“Better one’s own duty imperfectly performed than another’s well executed.” — Bhagavad Gita 3.35
+"In the depth of winter, I finally learned that within me there lay an invincible summer." (Albert Camus, Return to Tipasa)
 
 We were never meant to be workers for someone else’s dream, unless it was a shared dream for the welfare of the common people.
 We were meant to be builders of our own destiny.
