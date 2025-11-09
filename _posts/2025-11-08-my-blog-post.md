@@ -43,10 +43,6 @@ A fundamental question is, why are athletes & scholars separated? Why can't we h
 Have you ever wondered, why the education system is fragmented so that engineers can't do the work of technicians & technicians can't do the work of engineers? 
 It is by design so that both are needed, so that this made-up system of capitalism keeps generating profit for the resource owners. More importantly, this fragmentation is present so that there is never a shortage of labor, because if that were to happen it would put the bargaining power in the hands of those who do the work, not those who own the resources.
 
-
-
-
-
 This is a case of fear-based compliance, where there's always an implicit fear present in the psyche of the workers to be compliant so that their employment isn't lost. By design, it is drilled into the heads of the people in the workforce, 'comply, or there are plenty of others who're dying to get to this position you're complaining about'. Not only does this fragmentation ensure that labor always remains abundant, it also drills the psychological illusion of labor abundance even if the reality is something else. That fear-mongering benefits the resource owners. If there's no shortage of labor, the people are afraid of going against the perceived norm. That is why there exist so many places all over the world without safe working conditions, no mandates for worker safety, nor do the owners care about anything other than their profit. This keeps the bargaining power of those who work low than those who own the resources, & it is a one-sided benefit. This isn't the free market. By this design of education system & employment, students learn to fear failure, adults learn to fear unemployment, & both learn to obey & comply without questions.
 
 "The surest way to corrupt a youth is to instruct him to hold in higher esteem those who think alike than those who think differently." (Friedrich Nietzsche, The Dawn)
@@ -97,6 +93,17 @@ Here I am reminded of a line from Fyodor Dostoevsky's Crime & Punishment "...you
 The modern education system induces in us a permanent state of limbo, of being aware yet drowning in inaction. That is the contradiction that we must overcome.
 
 "The most incorrigible vice being that of an ignorance which fancies it knows everything." (Albert Camus, The Plague)
+
+## Reality check: alarming rate of student suicides increase
+
+The statistics related to student suicide rates increasing across the world, particularly in India, China, South Korea, US, reveal a clear pattern. Under the pressure of getting the best college, the best course & then the highest paying job, students' mental health is crumbling. (Source: https://www.google.com/amp/s/amp.dw.com/en/india-what-is-behind-the-rise-in-student-suicides/a-73383151, https://pmc.ncbi.nlm.nih.gov/articles/PMC11878138/)
+
+Mental health is not separate from physical health, & the fragmentation of it as something separate from overall health is also a prime example of fragmentation to keep the chariot of capitalism running. The issue is systemic, not individual, therefore, mandating mental health sessions as compulsion won't do any work. Even more hypocrisy is the fact that students don't get enough time to go out in the sun while they have to attend 2 hours of mental health sessions under artificial lights. Is it really a surprise that it's not working?
+
+With the rise of corporates, more & more people wanted their children to get a good job & be set for life, & hence they collectively increased investments in education, without asking who that investment served. Education then became commoditized. That led to the supply of employees transitioning into an oversupply, & it gave the bargaining power to the resource owners.
+
+The system of the education system currently is so unnatural that no amount of normalizing it via therapy isn't going to work. But the education system isn't isolated from late-stage capitalism, it is its moulding tool. Only by rejection of the system in its entirety, & by replacing it with something natural to curiosity & dignity is going to help this case.
+
 
 ## Role of narrative engineering
 Narrative engineering works in such a way that hollow specialization is revered as 'depth of knowledge' & the one who knows something about a lot of things (because he's interested in a lot of things) is treated as 'lacking depth', but what is perhaps an utter failure of understanding is that the one who knows something about a lot of things has taken the first step towards integration, while the one searching for depth in a bottomless pit is perhaps still afraid of the initial stupidity they will feel when they read the first letter of a new subject.
