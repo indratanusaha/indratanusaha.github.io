@@ -11,7 +11,7 @@ So far, we've looked at the wounds & infection on the earth & humanity under the
 If capitalism is considered a chariot, then the previous two parts were its wheels, & now comes the charioteer - the one who facilitates ignorance, weaponizes curiosity against the curious & sows seeds of despair among those not privileged enough to afford expensive education. We will also look at how this is breaking apart a society from within & wonder whether the system is accidental or if the system works exactly as intended. In both scenarios, change is imminent & urgently required. In no case would you, the reader get the privileged excuse of ignorance.
 
 ## Intent & origin
-A civilization reveals its intent by the way it educates its children. Ours, in its current state reveals a will to domesticate the next generations.
+A civilization reveals its intent by the way it educates its children. Ours in its current state reveals a will to domesticate the present & the future generations. Late-stage capitalism requires not free souls but machines shackled to measurable outcomes. Therefore, it doesn't allow the imagination of the child to breathe before it enslaves the labor of adults.
 
 Consider the syllabus of civil services. It is mostly general knowledge coupled with excellent articulation. Then why is the education system such that any student doesn't think in connections, rather in fragments?
 
@@ -41,12 +41,16 @@ It is by design so that both are needed, so that this made-up system of capitali
 
 This is a case of fear-based compliance, where there's always an implicit fear present in the psyche of the workers to be compliant so that their employment isn't lost. By design, it is drilled into the heads of the people in the workforce, 'comply, or there are plenty of others who're dying to get to this position you're complaining about'. Not only does this fragmentation ensure that labor always remains abundant, it also drills the psychological illusion of labor abundance even if the reality is something else. That fear-mongering benefits the resource owners. If there's no shortage of labor, the people are afraid of going against the perceived norm. That is why there exist so many places all over the world without safe working conditions, no mandates for worker safety, nor do the owners care about anything other than their profit. This keeps the bargaining power of those who work low than those who own the resources, & it is a one-sided benefit. This isn't the free market. By this design of education system & employment, students learn to fear failure, adults learn to fear unemployment, & both learn to obey & comply without questions.
 
+"The surest way to corrupt a youth is to instruct him to hold in higher esteem those who think alike than those who think differently." (Friedrich Nietzsche, The Dawn)
+
 The system has made us so fearful that we've forgotten that all the epics in mythology & religion say the same thing, 'to act regardless of outcome'. We have become hypocrites. We speak of dharma yet act against it. We don't embody it, & we also deliberately try to bring the people who atleast try, because they reflect our cowardice back to us, as a mirror.
 
 "सुखदुःखे समे कृत्वा लाभालाभौ जयाजयौ।" (Bhagavad Gita 2.38)
 Translation: Be equal in pleasure and pain, gain and loss, victory and defeat.
 
 But there's another aspect of the same truth. The system only holds as much power as we believe it to hold on us. Without our belief, it loses its meaning. Even in mythology, the gods needed the prayers of devotees to stay strong, & this is just a man-made system.
+
+Philosopher Jean-Paul Sartre wrote, "Man is condemned to be free; because once thrown into the world, he is responsible for everything he does." The tragedy of our time is that we don't hold that freedom, we surrender it while calling it virtue.
 
 ## Design and greed
 
@@ -56,7 +60,10 @@ Human greed works in a way that once the then owners realized how fragile they w
 
 
 ## The engineered division
-The education system should ideally contain every subject related to a country's resources, welfare, harm, international relations, geography, geopolitics & past so that no citizen can have the excuse of staying ignorant. This kind of curriculum needs to be present everywhere from the schools to colleges, compulsorily, even without science. Language is a tool, & experience with different tool makes the next learning experience relatively easier by continuity.
+
+"There is no neutral education. Education either functions as an instrument to bring about conformity or freedom." (Paulo Freire)
+
+The education system's curriculum should ideally contain every subject related to a country's resources, welfare, harm, international relations, geography, geopolitics & past so that no citizen can have the excuse of staying ignorant. This kind of curriculum needs to be present everywhere from the schools to colleges, compulsorily, even without science. Language is a tool, & experience with different tool makes the next learning experience relatively easier by continuity.
 If someone looks at politics & says that they aren't interested so they won't study, that isn't enough reason to cut it. Everything that we see, consume, or produce is influenced by politics. From the first drop of water to the last barrel of oil reaching the port, everything is either working or not due to geopolitics, & much of it is influenced by geography.
 
 What happens when we remove these essential subjects of geography, history, political science from our in-depth syllabus to trade for specialization in science or arts?
@@ -68,7 +75,7 @@ When it's about clearing competitive exams, it becomes about competition, about 
 
 Any civil services syllabus is what a general citizen of India should be aware of, in that detail. There is no reason that one should be aware of those subjects only if one is preparing for the civil services exam. That is the fragmentation I wrote about in the previous paragraphs.
 
-## Enough to perform, not enough to understand & intervene
+## Enough to perform, not enough to understand or intervene
 It is, I suppose, unknowingly, a devious & hideous plan of those who designed the system originally, to give everyone enough snippets of information so that we can perform our roles with just enough efficiency to keep the system from failing, but we can't integrate it with a different role, nor do we get enough free time for that that it can happen naturally. Our awareness of our own ignorance keeps us compliant & the resource hoarders in power, & our prideful resistance towards learning anything new, & connecting across systems empowers them & designs the machinery towards even more compliance, to a point where asking basic questions are now considered outrageous.
 
 But we must not let ourselves be fragmented. So what if someone is an engineer by education? There's no conscience that dictates that a person must find his truth only in engineering.
@@ -81,10 +88,16 @@ Here I am reminded of a line from Fyodor Dostoevsky's Crime & Punishment "...you
 
 The modern education system induces in us a permanent state of limbo, of being aware yet drowning in inaction. That is the contradiction that we must overcome.
 
+"The most incorrigible vice being that of an ignorance which fancies it knows everything." (Albert Camus, The Plague)
+
 ## Role of narrative engineering
 Narrative engineering works in such a way that hollow specialization is revered as 'depth of knowledge' & the one who knows something about a lot of things (because he's interested in a lot of things) is treated as 'lacking depth', but what is perhaps an utter failure of understanding is that the one who knows something about a lot of things has taken the first step towards integration, while the one searching for depth in a bottomless pit is perhaps still afraid of the initial stupidity they will feel when they read the first letter of a new subject.
 
 That might explain why many of us knew this quote only half in childhood, "a jack of all trades is a master of none" & we took it as some doctrine, only to find out that the full quote was "a jack of all trades is a master of none, but often times better than a master of one".
+
+"He who fights with monsters should look to it that he himself does not become a monster. And if you gaze long into the abyss, the abyss also gazes into you." (Friedrich Nietzsche, Beyond Good and Evil)
+
+We have been breathing the filtered air of capitalism for so long that we've forgotten what it felt to actually breathe. We have become reflections of the same system, & we pride ourselves on it. We have become products instead of people.
 
 ## Opening our eyes to the failure of the modern education system
 To know the fallacy of a system, one must have a knowledge of the system. This is where the divisive modern education comes in & really shines through.
@@ -102,6 +115,8 @@ The real issue isn't population either. It is the misallocation of resources tow
 What do I mean by progressive strength?
 It is the strength of a kind where a student asks 'why' before 'how', where the clarity of intent is atleast equally or more important than clarity of method.
 The engineer must ask who benefits from his optimization, the scientist must ask who benefits from his science, & the statesman must ask why he is facilitating science or art or anything at all, & for whose benefit. It is blind allegiance & wilful ignorance that has led us to the point where we're burning the planet down, but now isn't too late to course-correct.
+
+Camus wrote, "The realization that life is absurd cannot be an end, but only a beginning." The same realization awaits every student who sees the absurdity of studying only to serve a system that drains life of meaning.
 
 If we truly invested in research that would benefit the planet, & not only to drive shareholder profit, we'd inevitably need more skilled graduates, which would mean more employment for real reasons rather than just maintaining a corporate balance sheet, & then firing them to show profit via reduced operating expenses (OPEX). That would also drive the competition down because of diversity & give time to individuals as well as the space to think freely.
 
@@ -199,6 +214,9 @@ And the first step is to think freely.
 
 ### The chariot can be stopped
 
-The chariot of capitalism still rolls forward, its wheels greased with greed of the few, its reins held by ignorance of the masses. But every soul that awakens, every child that questions is a hand pulling at those reins.
-When enough hands pull, the chariot will stop.
+Camus wrote, "The struggle itself toward the heights is enough to fill a man’s heart." The struggle to reclaim our education, our curiosity, and our humanity is the same type of struggle, relentless, perhaps endless, but sacred.
+
+The chariot of capitalism still rolls forward, its wheels greased with greed of the few, its reins held by ignorance of the masses & their perceived righteousness, while the horses push forward with blinders, regardless of their own will. But every soul that awakens, every person that questions is a horse questioning why it is bound to the chariot against its will.
+When enough horses stop, the chariot will stumble, & inevitably fall.
+
 In that silence, civilization will begin anew.
