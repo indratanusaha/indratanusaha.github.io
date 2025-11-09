@@ -184,6 +184,8 @@ That purpose must be reinstated again & the system must be redesigned, this time
 
 Translation: Let a man lift himself by his own Self; let him not debase himself.
 
+Education should not be gatekept by financial barriers, period.
+
 ### An approach to school education: proposing a relaxed environment instead of getting stuck in the rat race of competitive exams
 Now I'm going to present my views on what a schooling education system should be.
 For now, we'll consider a school from Class 1-12. We'll consider that till the age of 4, the child is homeschooled & from the age of 5, he enters Class 1.
