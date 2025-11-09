@@ -152,7 +152,7 @@ We see that if the current trajectory of the education system doesn't make space
 
 ## The solution
 
-### Rerouting to curiosity & connection to truth
+### Rerouting to curiosity & integration of the mind with the body
 As a species, we have reached a point where we don't need consistent churning of profits anymore. We have enough resources to solve world hunger & end the housing crises of the world. If policies are stopping those remedies, then that is an intent problem, not a resource problem.
 Therefore, we must reroute our education system towards curiosity now, otherwise, it will be too late.
 A nation of thinkers cannot be conquered, not by money or manipulation. For its needs, it can create might.
@@ -199,7 +199,7 @@ Day 6: Biological Science, Chemical Science
 Day 7: Holiday/Free day
 
 This would engage both the creative & analytical sides of the mind, & on the education front, they're covered. 
-The rest of the time, they'd be doing projects of setting up a mini-kitchen, exercising, sketching, painting, music & dance, playing sports & reading the scriptures & debating with each other. It doesn't have to be a boarding school, but it would be easier if the students stay nearby to each other. It is designed like a community school to facilitate free thinking, & to give children so much of free space that they end up being creators.
+The rest of the time, they'd be doing projects of setting up a mini-kitchen, exercising, sketching, painting, music & dance, playing sports & reading the scriptures & debating with each other, so that the mind & body are aligned , not fragmented. It doesn't have to be a boarding school, but it would be easier if the students stay nearby to each other. It is designed like a community school to facilitate free thinking, & to give children so much of free space that they end up being creators. This would be like a miniature Gurukul, but over time, the Gurukul would be reinstated if this initiation is done correctly.
 Of course, this can be villainized saying that children don't know to manage their time & would be on the phone the whole day, but that falls on the parent & how attentive the child is in the classes, because if they're attentive, they won't act on the hedonic temptations (or become more aware after it), just by the choice of exercising their free will. 
 Philosophy would include everything from the Hindu scriptures to Greek epics, Nietzsche, Camus, etc.
 
