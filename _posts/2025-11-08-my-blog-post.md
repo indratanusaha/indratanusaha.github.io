@@ -36,8 +36,16 @@ Most of us have accepted this compliance unknowingly because we lost sight of in
 Translation: If you do not act according to your duty, you will lose virtue and incur sin.
 
 ## Fragmentation is by design, not accident, but it is not irreversible
+A fundamental question is, why are athletes & scholars separated? Why can't we have academic & physical training simultaneously? Why must a student be forced to choose one (in most cases) when both can be chosen if only the system had space for that? It is no secret that a healthy body contains a healthy mind.
+
+"The society that separates its scholars from its warriors will have its thinking done by cowards and its fighting by fools." (Thucydides)
+
 Have you ever wondered, why the education system is fragmented so that engineers can't do the work of technicians & technicians can't do the work of engineers? 
 It is by design so that both are needed, so that this made-up system of capitalism keeps generating profit for the resource owners. More importantly, this fragmentation is present so that there is never a shortage of labor, because if that were to happen it would put the bargaining power in the hands of those who do the work, not those who own the resources.
+
+
+
+
 
 This is a case of fear-based compliance, where there's always an implicit fear present in the psyche of the workers to be compliant so that their employment isn't lost. By design, it is drilled into the heads of the people in the workforce, 'comply, or there are plenty of others who're dying to get to this position you're complaining about'. Not only does this fragmentation ensure that labor always remains abundant, it also drills the psychological illusion of labor abundance even if the reality is something else. That fear-mongering benefits the resource owners. If there's no shortage of labor, the people are afraid of going against the perceived norm. That is why there exist so many places all over the world without safe working conditions, no mandates for worker safety, nor do the owners care about anything other than their profit. This keeps the bargaining power of those who work low than those who own the resources, & it is a one-sided benefit. This isn't the free market. By this design of education system & employment, students learn to fear failure, adults learn to fear unemployment, & both learn to obey & comply without questions.
 
