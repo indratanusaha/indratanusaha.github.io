@@ -189,17 +189,20 @@ Now I'm going to present my views on what a schooling education system should be
 For now, we'll consider a school from Class 1-12. We'll consider that till the age of 4, the child is homeschooled & from the age of 5, he enters Class 1.
 
 In the morning, the school would start at 10 am, no need for early morning discipline. Let the students become aware on their own. The purpose of the previous generation breaking their backs with work is that the child could make art or at least have time for it, & that he doesn't have to work compulsively. We're not here to keep churning out profits for the few while destroying our planet until extinction of the masses. 
+
 From 10 to 2, there would be 2 classes of different subjects each 2 hours with focus on discussion as well not just one-way information transfer, with the weekly schedule looking like this:
-Day 1: Philosophy, Maths
-Day 2: History, Art
-Day 3: Geography, Politics
-Day 4: Civic sense, Economics
-Day 5: Physical Science, Biomechanics & anatomy
-Day 6: Biological Science, Chemical Science
-Day 7: Holiday/Free day
+
+Day 1|Philosophy, Maths
+Day 2|History, Art
+Day 3|Geography, Politics
+Day 4|Civic sense, Economics
+Day 5|Physical Science, Biomechanics & anatomy
+Day 6|Biological Science, Chemical Science
+Day 7|Holiday/Free day
 
 This would engage both the creative & analytical sides of the mind, & on the education front, they're covered. 
-The rest of the time, they'd be doing projects of setting up a mini-kitchen, exercising, sketching, painting, music & dance, playing sports & reading the scriptures & debating with each other, so that the mind & body are aligned , not fragmented. It doesn't have to be a boarding school, but it would be easier if the students stay nearby to each other. It is designed like a community school to facilitate free thinking, & to give children so much of free space that they end up being creators. This would be like a miniature Gurukul, but over time, the Gurukul would be reinstated if this initiation is done correctly.
+The rest of the time, they'd be doing projects of setting up a mini-kitchen, exercising, sketching, painting, music & dance, playing sports & reading the scriptures & debating with each other, so that the mind & body are aligned , not fragmented. It doesn't have to be a boarding school, but it would be easier if the students stay nearby to each other. It is designed like a community school to facilitate free thinking, & to give children so much of free space that they end up being creators. This would be like a miniature Gurukul, but over time, the Gurukul would be reinstated if this initiation is done correctly. Effectively, the focus needs to be brought back to learning instead of getting a degree & paying off student loans, that is why a no-fee model is proposed.
+
 Of course, this can be villainized saying that children don't know to manage their time & would be on the phone the whole day, but that falls on the parent & how attentive the child is in the classes, because if they're attentive, they won't act on the hedonic temptations (or become more aware after it), just by the choice of exercising their free will. 
 Philosophy would include everything from the Hindu scriptures to Greek epics, Nietzsche, Camus, etc.
 
