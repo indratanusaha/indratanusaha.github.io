@@ -100,7 +100,7 @@ That might explain why many of us knew this quote only half in childhood, "a jac
 We have been breathing the filtered air of capitalism for so long that we've forgotten what it felt to actually breathe. We have become reflections of the same system, & we pride ourselves on it. We have become products instead of people.
 
 ## Opening our eyes to the failure of the modern education system
-To know the fallacy of a system, one must have a knowledge of the system. This is where the divisive modern education comes in & really shines through.
+To know the fallacy of a system, one must have knowledge of the system. This is where the divisive modern education comes in & really shines through.
 The syllabus isn't completely at fault, atleast in terms of history. If someone manages to read everything of every subject from just the NCERT books, they will develop a systemic understanding, that would go under the lines & beneath the pretty words of newspapers & media.
 
 But here's the bottleneck: for someone to actually consider reading all the subjects, they would need an ample amount of free time, & the manufactured lack of it is the genius of the education system. There isn't enough time to wonder, same as with corporates in a corporate career. Education has been commoditized since long & the internal structure is akin to corporates, actually, if I'm really blunt, it's like factories. 
