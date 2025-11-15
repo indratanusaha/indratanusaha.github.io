@@ -16,6 +16,6 @@ This writing is my offering to the Earth that nourished me, fed me & kept me ali
 
 If my words help even one person feel the truth, then it would've served its purpose, even if that person is only me. I don't desire to be remembered, nor am I doing it for applause from anyone. I write because truth demands expression, and at this moment, it is flowing through me.
 
-When I see the rot beneath systems, the hypocrisy of people, the lies hidden in the performance of truth, and I cannot remain silent.
+When I see the rot beneath systems, the hypocrisy of people, the lies hidden in the performance of truth, I cannot remain silent.
 
 TRUTH NEVER DIES
