@@ -8,7 +8,7 @@ No one forces me to write, I do it of my own free will, & will continue to do so
 
 I write because a nation is only as strong as its citizens who see truth clear-eyed, without flinching, because dharma requires understanding, not blind devotion.
 
-Strength is a discipline, not an accident.
+Strength is embodied discipline inside freedom, civilizations never inherit it by accident.
 
 I write because India’s truths are layered, ancient, misunderstood, and weaponized against her civilization.
 
@@ -45,4 +45,4 @@ Either way, the journey continues.
 
 Today, truth lives through me. Tomorrow, it will live through another.
 
-But even with all the different vessels across time, the truth won't die, because truth never dies, it just changes form, and reveals itself.
+But even with all the different vessels across time, the truth won't die, because truth never dies. It just changes form, waiting to be seen again.
