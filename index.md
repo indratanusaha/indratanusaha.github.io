@@ -6,11 +6,9 @@ The choice to write is mine.
 
 No one forces me to write, I do it of my own free will, & will continue to do so until my soul deems it necessary.
 
-i am not here to comfort you with my writing, nor to soothe you with pretty bandages while you bleed out of the wounds created by ignorance.
+i am not here to comfort you with my writing, nor to soothe you with pretty bandages while you bleed out of the wounds created by ignorance. I am here to call out the distortion, oversimplification, and quiet erosion of truth.
 
-I am here to call out the distortion, oversimplification, and quiet erosion of truth.
-
-This is a fight against the oversimplification of epics I grew up on, against the reduction of complex 'human' characters into convenient stereotypes, against the reduction of truth into neat boxes designed to not offend anyone.
+This is a fight against the oversimplification of epics I grew up on, against the reduction of complex 'human' characters into convenient & cartoonish stereotypes, against the reduction of truth into neat boxes designed to not offend anyone.
 
 My interests range across systems because truth can't be compartmentalized, it flows. It lives & breathes across multiple systems, across time & civilizations, it was here long before civilizations, & it will be here long after we're gone.  It survives wars, outlives empires, and waits patiently beneath our illusions, while being buried right beneath our noses.
 
