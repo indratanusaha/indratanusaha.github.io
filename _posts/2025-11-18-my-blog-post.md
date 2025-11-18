@@ -1,4 +1,4 @@
-# India has been protein-deficient for more than 250 years. Now is the time to fix it.
+# India has been protein-deficient for more than 250 years. Now is the time to fix that.
 
 ## This Problem Is Civilizational, Not Just Nutritional
 
