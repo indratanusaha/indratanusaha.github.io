@@ -151,9 +151,9 @@ Even on the rare days chicken or paneer is cooked in the mess, the quantity is s
 
 If we're feeding the youth meals of this low nutritional quality in the premier institutes of the country, after charging them lakhs of rupees for education & hostel combined, can we reasonably expect to produce strong individuals?
 
-**Need of structural reform**
+## Need of structural policy reform
 
-This is where structural reform is needed:
+This is where structural policy reform is needed:
 
 - Mandatory 25–30 g protein per meal in school & college hostels. Together, 3 meals would make it atleast 75 g protein, which is a good start.
     - Result: 5.9 million students living in hostels would become protein-sufficient.
@@ -181,7 +181,7 @@ Therefore,
 - Policies must address affordability and availability of protein.
 - State must treat protein as national infrastructure.
 
-**The two-front challenge**
+## The two-front challenge
 
 The challenge here is two front:
 
@@ -192,7 +192,7 @@ We can do better by creating a detailed nutrition chart of the menu in colleges 
 
 SDGs 2 (Zero Hunger), 3 (Health & Well-being), 13 (Climate action), all align with this goal.
 
-**History Lesson from Colonial Times**
+## History Lesson from Colonial Times
 
 Now that we've established that the current dietary system needs a reform, let us look at the history of how India came to be a protein-deficient nation in the first place.
 
@@ -213,7 +213,7 @@ What did we lose? Nutritional uniqueness & sovereignty.
 
 Despite of these historical facts, the truth is that we don't have to carry that suffering in today's times. We must reclaim sovereignty in nutrition.
 
-**Call to action**
+## Call to action
 
 If India does not correct its nutritional foundation, climate shocks will cripple agriculture, public health burdens will collapse the economy, hospital bills will rise & no one would benefit, especially not the nation.
 
@@ -235,10 +235,10 @@ The Upanishads say “अन्नं न निन्द्यात”.
 
 Translation: Let no one disrespect food.
 
-Modern policy implementation in its current state disrespects nutrition by omission, therefore, it must be changed.
+Modern nutrition policy implementation in its current state disrespects nutrition by omitting protein, therefore, it must be changed with awareness.
 
 
-**References**
+## References
 
 1. Kristie L Ebi and Irakli Loladze, “Elevated Atmospheric CO2 Concentrations and Climate Change Will Affect Our Food’s Quality and Quantity,” The Lancet Planetary Health 3, no. 7 (July 1, 2019): e283–84, https://doi.org/10.1016/s2542-5196(19)30108-1.
 2. Shrutika Ruchit Thakkar, “Assessing the Impact of Climate Change on Tuwar Dal Yields and Its Role in Driving Food Inflation in India,” *International Journal of Global Research Innovations & Technology (IJGRIT).* 03, no. 02 (May 10, 2025): 34-38, https://doi.org/10.62823/ijgrit/03.02.7395.
