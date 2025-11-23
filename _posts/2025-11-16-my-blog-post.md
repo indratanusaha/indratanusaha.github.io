@@ -57,13 +57,21 @@ The gale had become merciless now. The rain had become louder.
 I wasn’t seeing a way out of the storm. I was drenched from my hair to my feet. I was standing with support from the metal pillar, couldn’t see a thing with water splashing on my face every moment, and my hand was slipping from the support.
 
 *‘I think I might die today..’*
+
 *‘Then so be it..’*
+
 *‘But what if I don’t get to live again? I have so much that I put off, I thought I had tomorrow..’*
+
 *‘You’d still go down fighting..’*
+
 *‘But I didn’t choose this fight..’*
+
 *‘No one does, the fight chooses its warriors. We can only answer the call, or not..’*
+
 *‘But, I..I.. haven’t accomplished..doesn’t matter now. I’m going to die. Maybe this is what the people who live near cyclonic areas feel so often. I never imagined it to be this intense and overwhelming. It sure doesn’t seem this intense from TV. I now see how meaningless and absurd all this is, how fragile life is, and it means it is upto me to interpret it however I want to..’*
+
 *‘But it is still absurd..’*
+
 *‘Yes..’*
 
 After perhaps 20 more minutes, the gale paused. I walked the rest of the distance, didn’t think of checking my clock after reaching my room. I changed, took a shower, made a sketch, wrote about this near-death experience in my diary, ate food, and slept like a baby.
